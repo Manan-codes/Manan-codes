@@ -12,7 +12,7 @@ Minor in Software Engineering. Passionate about the intersection of mathematics,
 - 🌱 Learning: discrete mathematics, software project management, statistics
 - 💡 Interested in: AI-driven automation, workflow design, and machine learning applications
 - 🌍 Based in Finland | Open to internship opportunities
-- 📫 Reach me: [LinkedIn](https://linkedin.com/in/raja-manan-tassadiq) · rmanan252@gmail.com
+- 📫 Reach me: [LinkedIn](https://www.linkedin.com/in/raja-manan-tassadiq-6250152a7/) · rmanan252@gmail.com
 
 ---
 
